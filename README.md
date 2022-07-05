@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @viniclub867
-- 👀 I’m interested in mario bros
-- 🌱 I’m currently learning english
+- 👀 I’m interested in mario bros, sonic and other fucks
+- 🌱 I’m currently learning english and spanish
 - 💞️ I’m looking to collaborate on everyone
 - 📫 How to reach me ...
 
